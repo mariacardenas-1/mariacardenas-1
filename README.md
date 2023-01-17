@@ -33,7 +33,7 @@ Juntos podemos realizar un gran proyecto que cambie la vida de miles de personas
 
 [Linkedin](www.linkedin.com/in/maria-fernanda-cárdenas-1-frontend)
 <br/>
-Correo: maria.cardenas.r3@gmail.com
+
 
 
 <!--
