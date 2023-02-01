@@ -33,7 +33,7 @@ Juntos podemos realizar un gran proyecto que cambie la vida de miles de personas
 
 Linkedin: www.linkedin.com/in/maria-fernanda-cárdenas-1-frontend
 <br/>
-Email: maria.cardenas.r3@gmail.com
+Henry Talent: https://www.talent.soyhenry.com/candidate/9337
 
 
 <!--
