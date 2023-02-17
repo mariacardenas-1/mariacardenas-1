@@ -28,7 +28,7 @@ Me gusta trabajar en proyectos desafiantes y colaborar con diseñadores y desarr
 
 ### 🔮 CONTACTAME!! 🔊 📧  
 
-Si estas buscando un desarrollador frontend con pasión por la creación de productos de alta calidad, estaré encantado de trabajar contigo en tu próximo proyecto.
+Si estas buscando un desarrollador frontend con pasión por la creación de productos de alta calidad, estaré encantada de trabajar contigo en tu próximo proyecto.
 Juntos podemos realizar un gran proyecto que cambie la vida de miles de personas!
 
 Linkedin: www.linkedin.com/in/maria-fernanda-cárdenas-1-frontend
